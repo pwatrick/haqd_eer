@@ -1,1 +1,1 @@
-# haqd_eer
+# hispanic_paradox
